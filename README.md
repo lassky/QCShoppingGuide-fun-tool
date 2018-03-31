@@ -1,0 +1,1 @@
+# QCShoppingGuide-fun-tool
